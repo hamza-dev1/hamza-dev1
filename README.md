@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on my Skills.<br>🌱 I’m currently learning more about how to improve my productivity.<br>🤔 Discovering new ways to solve tricky problems is one of my interests.<br>💬 Ask me if you have any question related to computer science.<br>📫 reach me: Email - hamza.rquiq1@gmail.com<br>😄 Pronouns: He/His
+🔭 I’m currently working on my Skills.<br>🌱 I’m currently learning more about how to improve my productivity.<br>🤔 Discovering new ways to solve tricky problems is one of my interests.<br>💬 Ask me if you have any question related to computer science.<br>📫 reach me: Email - hamza.rquiq1@gmail.com
 
 
 ## 🌐 Socials:
